@@ -1,0 +1,1 @@
+# smkn1kupang
